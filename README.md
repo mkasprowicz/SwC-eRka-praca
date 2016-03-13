@@ -1,0 +1,1 @@
+Repozytorium utworzone w czasie szkolenia. 
